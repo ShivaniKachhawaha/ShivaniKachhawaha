@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @ShivaniKachhawaha
 - 👀 I’m interested in Data Analystics
-- 🌱 I’m currently learning Live projects
 - 📫 How to reach me.. mail: skachawaha025@gmail.com and linkedin: https://www.linkedin.com/in/shivanikachhawaha/
 
 
